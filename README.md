@@ -5,7 +5,7 @@
 
 - 👯 I’m looking to collaborate on [Leaderboard-Pro](https://github.com/OpenLake/Leaderboard-Pro)
 
-- 💬 Ask me about **Python, DSA, Djnago**
+- 💬 Ask me about **Python, DSA, Django**
 
 - 📫 How to reach me **rounakpatel2025@gmail.com**
 
