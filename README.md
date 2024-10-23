@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **rounakpatel2025@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1-Rs_4F_3xUF2RWbH_MkxN8y6vHAIL7g9/view?usp=drive_link](https://drive.google.com/file/d/1-Rs_4F_3xUF2RWbH_MkxN8y6vHAIL7g9/view?usp=drive_link)
+- 📄 Know about my experiences [Resume Link](https://drive.google.com/file/d/19M_Wing-Py7XMALE5EpxFBsnl7fzXcGU/view?usp=sharing)
 
 - ⚡ More about me **I Enjoy to learn about finance And have trading Experience**
 
